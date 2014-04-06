@@ -11,7 +11,7 @@ You can find all you need on the Big Blue Board, and you know it's going to be s
 
 So what are you waiting for? Check out Big Blue Board today!
 
-## How it works? --
+## How it works?
 Post the content, we'll do the rest!
 It's plain simple.
 Post whatever you're advertising, and the Big Blue Board will do the work for you!
